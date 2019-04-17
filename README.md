@@ -6,6 +6,9 @@ Una de las barajas más populares para realizar las predicciones, es el tarot gi
 
 http://www.redalternativa.com/articulos/junotarotonline.html
 
+http://www.redalternativa.com/articulos/quitarmaldeojo.html
+
+
 
 Con el tarot gitano se pueden realizar varias tiradas, generalmente, se piensa que con esta baraja se puede predecir el pasado, presente y futuro. Pero, con el tarot gitano también se puede analizar la vida completa de una persona.
 
